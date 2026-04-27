@@ -1,1 +1,1 @@
-# Desafio-super-trunfo---Pa-ses---Cadastro-de-cartas
+# Desafio-super-trunfo---Paises---Cadastro-de-cartas
